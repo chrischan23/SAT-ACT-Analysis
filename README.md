@@ -1,3 +1,4 @@
+![](http://upl.stack.com/wp-content/uploads/2013/02/ACT-and-SAT-629x421.jpg)
 ## SAT - Moulding the Future of America
 >_“Education is the most powerful weapon which you can use to change the world”_ – Nelson Mandela
 
